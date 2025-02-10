@@ -1,4 +1,4 @@
 ---
-title: Such generous! Amaze! \n So wallet, much ready! Very tip, wow! 💰🚀
+Such generous! Amaze!: So wallet, much ready! Very tip, wow! 💰🚀
 ---
 
