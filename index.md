@@ -1,4 +1,5 @@
 ---
-title: Welcome to my blog
+title: Such generous! Amaze!
+So wallet, much ready! Very tip, wow! 💰🚀
 ---
 
